@@ -1,4 +1,4 @@
-# 
+# Enhance FL Studio for PC | FL Studio for Windows with best FL Studio for PC | FL Studio for Windows Script | mixing + synthesizers, the #1 script. Includes mixing and synthesizers
 
 
 
